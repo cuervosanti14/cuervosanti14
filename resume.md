@@ -17,8 +17,8 @@ N.U.in Program – Semester Abroad — *September–December 2025*
 
 **Newton North High School** — Newton, MA  
 High School Diploma — *June 2025*  
-Activities: Spanish Culture Club President, Philosophical Discussion Club Officer, 2025 MIAA Division 1 Boys Varsity Soccer Champion & Team Captain  
-Volunteering: Annual Car Wash Fundraiser, Paddy's Road Race, Athletes Unlimited, NEACOL
+**Activities:** Spanish Culture Club President, Philosophical Discussion Club Officer, 2025 MIAA Division 1 Boys Varsity Soccer Champion & Team Captain  
+**Volunteering:** Annual Car Wash Fundraiser, Paddy's Road Race, Athletes Unlimited, NEACOL
 
 ---
 
