@@ -8,9 +8,9 @@ cuervopaez.s@northeastern.edu | (617) 775-9084 | Boston, MA | [LinkedIn](https:/
 
 **Northeastern University**, Khoury College of Computer Sciences — Boston, MA  
 BS in Data Science & Business Administration — *May 2029*  
-Activities: Data Club, Dollars & Sense Club, Finance & Investment Club  
-Coursework: Intermediate Programming with Data, Financial Accounting and Reporting, Principles of Macroeconomics, Introduction to Marketing, Introduction to Program Design and Implementation  
-Skills: Python, Google Workspace, Canva, Data Analysis, Spanish (fluent)
+**Activities:** Data Club, Dollars & Sense Club, Finance & Investment Club  
+**Coursework:** Intermediate Programming with Data, Financial Accounting and Reporting, Principles of Macroeconomics, Introduction to Marketing, Introduction to Program Design and Implementation  
+**Skills:** Python, Google Workspace, Canva, Data Analysis, Spanish (fluent)
 
 **Queen's University Belfast** — Northern Ireland  
 N.U.in Program – Semester Abroad — *September–December 2025*
