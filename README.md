@@ -35,4 +35,10 @@ I'm interested in using data to solve real business problems — across finance,
 
 ---
 
+## Looking Forward *(Summer 2026)*
+- Building: SQL Certification, Python Portfolio Projects, Power BI Skills
+- Working: Beacon Bank Summer Teller, Tutoring, Youth Soccer Coaching
+
+---
+
 Former varsity soccer captain · 2025 MIAA Division 1 Champion
